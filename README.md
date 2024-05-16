@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Durga-Jaiswal
-- 👀 Learning to BUILD ...
+- 👀 Learning to BUILD Softwares...
 - 🌱 I’m currently learning ... Web Development
 
 - 📫 How to reach me ... email me on jaiswaldurga555@gmail.com
